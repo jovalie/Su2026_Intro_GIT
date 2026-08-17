@@ -46,4 +46,4 @@ Bring the central conflict to its most intense moment. Cadie confronts the main 
 
 ### 12. Resolution or Cliffhanger
 
-Cadies defeats the big bad but it turns out to be her future self. Cadies dreads about what will happens to make her this way but is determined to not let the future come. *Camera Pan*. Fin
+Cadie defeats the big bad, but it turns out to be her future self. Cadie dreads what will happen to make her this way, but she is determined to prevent that future. *Camera pan.* Fin
