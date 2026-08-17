@@ -22,7 +22,7 @@ Cadie speaks with another important character. Their conversation reveals inform
 
 ### 6. Internal Thoughts and Emotions
 
-Show Cadie's private thoughts and feelings as they process what has happened and question what they should do next.
+Cadie is confused, as she has never encountered such events before, but nevertheless remains excited about everything that lays ahead.
 
 ### 7. Technology or Invention
 
