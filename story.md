@@ -46,4 +46,4 @@ Bring the central conflict to its most intense moment. Cadie confronts the main 
 
 ### 12. Resolution or Cliffhanger
 
-Either resolve the main conflict and show what happens afterward, **or** end with an unanswered question, revelation, or new threat that leaves the story open for what comes next.
+Cadies defeats the big bad but it turns out to be her future self. Cadies dreads about what will happens to make her this way but is determined to not let the future come. *Camera Pan*. Fin
