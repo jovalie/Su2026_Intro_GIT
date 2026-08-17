@@ -2,7 +2,7 @@
 
 ### 1. Main Character Introduction
 
-Introduce **Cadie**, the central character, including their personality, everyday life, and something they want or hope to achieve.
+This is the story about Cadie, a marshmallow that is outgoing and happy to share experiences with others. It hopes to achieve the ultimate sweetness!
 
 ### 2. Setting the World
 
