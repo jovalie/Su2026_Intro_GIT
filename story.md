@@ -48,4 +48,4 @@ But the moment the Engine shuddered, its emerald core dimming to a sickly sputte
 
 ### 12. Resolution or Cliffhanger
 
-Either resolve the main conflict and show what happens afterward, **or** end with an unanswered question, revelation, or new threat that leaves the story open for what comes next.
+Cadie defeats the big bad, but it turns out to be her future self. Cadie dreads what will happen to make her this way, but she is determined to prevent that future. *Camera pan.* Fin
