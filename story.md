@@ -6,7 +6,8 @@ Introduce **Cadie**, the central character, including their personality, everyda
 
 ### 2. Setting the World
 
-Establish the story's setting and introduce details that make the world feel distinctive, whether it is realistic, futuristic, magical, or unfamiliar.
+
+In 2090, Cadie lives in Nova City, a highly automated metropolis powered by renewable energy and quantum computing. AI manages transportation, healthcare, and public services, while neural wristbands act as digital IDs and monitor citizens' health. The entire city is connected to ORION, a central AI system that quietly records almost everything people do.
 
 ### 3. The Initial Discovery
 
