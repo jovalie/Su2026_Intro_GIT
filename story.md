@@ -34,7 +34,7 @@ The situation becomes more complicated. The characters face greater risks, new o
 
 ### 9. Plot Twist
 
-Reveal a surprising development that changes the audience's understanding of the situation, a character, or the world.
+Cadie actually has an evil twin sibling. They start fighting.
 
 ### 10. Major Decision
 
